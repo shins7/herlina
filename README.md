@@ -1,4 +1,4 @@
 # syfa
-Selamat ulang tahun Syfa
+Selamat ulang tahun Herlina
 
-https://fdciabdul.github.io/syfa/
+https://shins7.github.io/herlina/
